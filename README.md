@@ -1,0 +1,2 @@
+# lesson08
+LCN HSK1 LESSON 08
